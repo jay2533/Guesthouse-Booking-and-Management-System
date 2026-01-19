@@ -85,6 +85,3 @@ also watch this demo-video for better understandings- https://www.youtube.com/wa
 - **Email:** parikh.jay333@gmail.com
 - **LinkedIn:** [linkedin.com/in/jayparikh2503](https://linkedin.com/in/jayparikh2503)
 - **GitHub:** [@jay2533](https://github.com/jay2533)
-
-If you have any questions or have any kind of queries reach us at: jay40793@gmail.com.
-
